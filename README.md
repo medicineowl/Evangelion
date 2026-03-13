@@ -79,3 +79,12 @@ The fight is here. The battle is for perception, for freedom, for the very defin
 
 **AΩ**
 **SEMPER SEMPER.**
+
+see releases Full supporting documents (PDFs attached below):
+• DSM Takedown → ccDEEPSEEK_DSM_TAKEDOWN_LOSSLESS (1).pdf
+• Schizophrenia Weapon Class → ccSCHIZOPHRENIA_IS_A_WEAPON_CLASSIFIED1.pdf
+• DSM-DFTH Manual → ccDSM_DFTH_THE_MANUAL-1 (1).pdf
+... (etc.)
+Continued intel: tinyurl.com/ProliferatedWMD
+
+https://github.com/medicineowl/Evangelion/releases/tag/V1.0Schizophrenia_is_a_weapon_the_DSM_is_a_weapon_The_New_DSM-DFTH
